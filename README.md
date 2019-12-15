@@ -1,4 +1,6 @@
 # hello-world
 repository-1
-chai soothes my troubled mind
-i shake when i'm nervous
+i have little direction.
+i am interested in many directions.
+i must create a curriculum for myself.
+You do not need school to be a student.
